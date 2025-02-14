@@ -5,3 +5,4 @@
 ![depositphotos_10845123-stock-photo-hamster-hangs-on-a-rope-removebg-preview](https://github.com/user-attachments/assets/f33f9386-09b7-444e-94f9-e63124e5c8c1)
 ![450_1000-removebg-preview](https://github.com/user-attachments/assets/ce91db4f-912d-4d79-bbef-8580a44e816e)
 ![queso-azul-removebg-preview](https://github.com/user-attachments/assets/a94155fb-68cb-4c91-b6c0-61f86b3f3bcf)
+![181280129-dibujada-ilustración-de-tentáculos-de-monstruos-submarinos-ilustración-vectorial-removebg-preview](https://github.com/user-attachments/assets/faa0ec8b-f67e-4438-a88c-73ab21287151)
